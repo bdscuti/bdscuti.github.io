@@ -1,2 +1,0 @@
-# bdscuti.github.io
-
